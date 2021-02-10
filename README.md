@@ -1,4 +1,4 @@
-# masalaamantra
+# Masalaa Mantra
 Indian Dishes that You should Try
 What is Indian Cuisines? 
 Indian cuisines are the variability kinds of dishes that are a mixture of ancient and regional foods. Indian dishes are deeply influenced by culture, choice, traditions. throughout Muslim rule, emperors fancied samoosas. Indian cuisines are one among the simplest cuisines. There are several  Indian Restaurants Fort Myers every nation has its own completely different cuisines. Potatoes , chilly and peppers that were introduced by Portugeese and Arabs introduced these in India throughout the sixteenth century. afterward differing types of dishes were being fancied. 
